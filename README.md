@@ -2,7 +2,7 @@
 # Uriel Francisco Bravo
 ### Presentacion Personal
 
-Hola me llamo Uriel,tengo 23 años, este es mi tercer cuatrimestre en la tecnicatura universitaria en programacion que brinda la Universidad Nacional de Hurlingham, del primer año solo me faltaria aprobar **matematica para informatica II**.
+Hola me llamo Uriel, tengo 23 años, este es mi tercer cuatrimestre en la tecnicatura universitaria en programacion que brinda la Universidad Nacional de Hurlingham, del primer año solo me faltaria aprobar **matematica para informatica II**.
 Nunca me gusto ir al colegio cuando era mas chico, los ultimos dos años de secundario me lleve todas las materias y todas las rendi en la primera instancia de examen en diciembre :zany_face:.
 
 Apenas termine el secundario me anote en la licenciatura en filosofia en la universidad de buenos aires, termine el CBC y cuando entre en la carrera me di cuenta que no era lo que queria asi que no fui mas.
