@@ -25,5 +25,4 @@ Me considero un apasionado por el aprendizaje de cualquier tipo de conocimiento,
 
 Les dejo una imagen con mi gatito **EL COLITA** :sunglasses:
 
-[fotoConElColita](https://github.com/obj1-unahur-2023s2/presentacionpersonal-UrielBravooo/assets/141975268/ed5fb8cc-b2e4-4101-953d-7888229dd734)
-pg)
+![fotoConElColita](./assets/fotoConElColita.jpeg)
