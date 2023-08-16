@@ -21,7 +21,7 @@ Me considero un apasionado por el aprendizaje de cualquier tipo de conocimiento,
 - Me gusta mucho la musica, tengo conocimientos de creacion de instrumentales a traves del software **Fruity Loops Studio**(fl studio), puedo samplear cualquier cosa literalmente.
 - Se tocar la guitarra, el piano y el ukelele.
 - Me gusta mucho el cannabis, me gustaria algun dia poder dedicarme desde el area programacion a la creacion de geneticas nuevas de cannabis o participar en algun proyecto relacionado al tema.
--Desde los 11 años hasta los 21 años practique boxeo, tengo mas de 50 exhibiciones de box en diferentes clubes de Buenos aires, llegue a adquirir una licencia amateur de boxeo.
+- Desde los 11 años hasta los 21 años practique boxeo, tengo mas de 50 exhibiciones de box en diferentes clubes de Buenos aires, llegue a adquirir una licencia amateur de boxeo.
 
 Les dejo una imagen con mi gatito **EL COLITA** :sunglasses:
 
